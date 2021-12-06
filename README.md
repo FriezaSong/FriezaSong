@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FriezaSong
-- 👀 I’m learnning
+- 👀 I’m learnning.
 Thank you.
 
 
